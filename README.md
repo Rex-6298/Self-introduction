@@ -1,2 +1,9 @@
 # Self-introduction
-My name is Rex. I am studying in the Department of Air Traffic Control at CJCU. Graduated from Xinhua High School. My interests are photography, model cars, eating delicious food and drinking coffee.
+你好，我是黃旭弘。
+我對睡覺吃東西有興趣。
+我目前就讀長榮大學。
+如何聯絡我：０９００１１０４２１
+暑假實習單位：便當店臨時外送員、在地傳統產業員工。
+考取證照：產品碳足跡內部查證員
+資深Youtube Premium會員
+資深Netflix會員
